@@ -16,3 +16,4 @@ A portfolio for showcasing my progress and achievements in cybersecurity
 
 
 **Proud Project/Task:** Im pround of myself for stepping into a field I once thought was beyond my ability and reach.  Over the last year...driven by the need to discover what was happening to me, and then to understand how it happened...  I discovered I was capable of digging into technology and I actually enjoyed it.  The injustice I experienced and the personal connection to the harm done, somehow unlocked a feature in my brain I dont think I would ever have had access to before. I have decided I am not letting it be wasted. Im proud of myself for choosing to take the worst thing that has ever happened to me...and turning it into a new career path that othersise wouldnt have been possible and Im going to walk in it with purpose.
+
